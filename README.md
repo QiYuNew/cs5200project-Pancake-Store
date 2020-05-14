@@ -1,1 +1,1 @@
-# cs5200project-Pancake-Store
+# Please step to the WiKi pages
